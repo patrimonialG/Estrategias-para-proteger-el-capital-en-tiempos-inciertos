@@ -1,1 +1,2 @@
 # Estrategias-para-proteger-el-capital-en-tiempos-inciertos
+En épocas de incertidumbre económica, la preservación del capital se vuelve una prioridad. Diversificar inversiones entre bonos, bienes raíces y materias primas es clave para minimizar riesgos. Herramientas como el stop-loss permiten limitar pérdidas y evitar impactos mayores en el patrimonio. Las inversiones en renta fija ofrecen una opción más segura y estable, asegurando ingresos periódicos. Con una planificación adecuada, es posible proteger el capital y mantener la estabilidad financiera a largo plazo.
